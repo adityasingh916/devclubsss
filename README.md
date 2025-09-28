@@ -8,9 +8,12 @@ I'm **Aditya Dhanraj Singh**, a passionate **Tech Enthusiats**
 - I have studied **Python Language** as my subject in school
 - I have also studied **MySql** data base language
 
-![ADITYA IS HIM](https://i.pinimg.com/736x/07/53/02/0753021842af5ecb8748282d33ffdffc.jpg)
+
+![ADITYA IS HIM](https://media0.giphy.com/media/v1.Y2lkPTZjMDliOTUyNzZyOWRvNXFucjlwMWZkanZtbTdnZjJzaW5oenExZGh6NXphdDg3MCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/B4jfJqiIxvU08/giphy.gif)
 
 
 ### 📫 Get in Touch
 - **LinkedIn** : ([Linkedin](https://www.linkedin.com/in/aditya-singh-6b7980377/))
 - **Github** : ([github](https://github.com/adityasingh916))
+### In case i dont reply just know
+![ADITYA IS HIM](https://media0.giphy.com/media/v1.Y2lkPTZjMDliOTUyNzZyOWRvNXFucjlwMWZkanZtbTdnZjJzaW5oenExZGh6NXphdDg3MCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/B4jfJqiIxvU08/giphy.gif)
